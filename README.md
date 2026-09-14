@@ -1,0 +1,2 @@
+Bu Depo benim (Şevval Ülkü BİLGİ) 2020 yılından, Bilişim Teknolojileri bölümüne başlamamdan, itibaren
+aldığım eğitimlerin, kursların, katıldığım zirve ve programların sertifikalarını içeriyor.
